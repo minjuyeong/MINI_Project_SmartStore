@@ -60,4 +60,15 @@
 
 ## 🎥 시연 영상
 
-`demo_smart_store.mp4`
+
+https://github.com/user-attachments/assets/48416154-a27e-4c83-a6a9-9ee65fcbecf8
+
+
+
+https://github.com/user-attachments/assets/a9b789f6-3c63-43ff-844b-8cdf78acf3d7
+
+
+
+https://github.com/user-attachments/assets/4926c441-ba69-4dbe-add5-2730e0e26980
+
+
